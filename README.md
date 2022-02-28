@@ -1,6 +1,6 @@
 ## Hi! My name is Inauí 🍀 / Olá! Meu nome é Inauí 🍀
 
-- 👷‍♀️ Environmental Engineer seeking my **career transition**
+- 👷‍♀️ Environmental Engineer driven to learn more and more
 - ✔ Always aiming to find **solutions** for the world
 - 👩‍💻 Learning HTML, CSS, JavaScript, C++ and JAVA
 - 💁‍♀️ *She/Her/Ela/Dela*
